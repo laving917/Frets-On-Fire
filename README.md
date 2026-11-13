@@ -221,4 +221,4 @@ Frets on Fire is offered as a **full free version** with all features and update
 Get ready to rock! Download Frets on Fire today and unleash your inner guitar hero!
 
 ---
-**Last updated:** 2026-11-13 18:12:01 UTC
+**Last updated:** 2026-11-13 23:58:25 UTC
